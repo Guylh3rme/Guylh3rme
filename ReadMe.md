@@ -1,4 +1,4 @@
-# 🔒
+# ☕
 Estudante de Segurança da Informação e Matemática | Comprometido com a proteção de dados e sistemas | Experiência sólida em cibersegurançae análise matemática | Buscando oportunidades para fortalecer a segurança digital |
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/guylherme-aldo-680385299/) [![Medium](https://img.shields.io/badge/Medium-12100E?logo=medium&logoColor=white)](https://medium.com/@https://medium.com/@guylhermeldo) 
